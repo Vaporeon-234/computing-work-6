@@ -2,4 +2,4 @@
 *Flexible
 *Strict, firm
 *Funny, humorous
-*Can change her voice into cute, manly, cartoon
+*Can change her voice into cute, manly, cartoon SEXY
